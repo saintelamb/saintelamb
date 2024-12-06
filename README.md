@@ -16,7 +16,7 @@
 <small><sub><i><h6 align="center"> “Of course, I do love you, isn't that how you made me?” </h6></i></sub></small>
 <h1></h1>
 
-<h5 align="center">DNI if...</h>
+<h5 align="center">Keep in that mind that...</h>
 <h6 align="center">I don’t have much boundaries except if you don’t respect the basic DNI criteria, which includes any kind of discrimination towards anyone – basic DNI criteria also includes anything criminal, of course.
 
 I abhor unfairness, ableism, mischief and vulgarity; meanness does not make one superior, I believe it’s quite pitiful and idiotic to act smug about your inability to respect others’ boundaries and wellbeing. As much as I'm able to understand that someone might act in a hostile manner for personal reasons, that shouldn't justify, in my opinion, their excruciating behavior.
