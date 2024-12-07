@@ -7,7 +7,9 @@
 <h6 align="center">I do not mind if you vent to me, whatever the topic is. I am by no means a professional and you should always try to seek help from a professional if needed and if you have the possibility to do so, but I'm good at listening and willing to offer emotional support as much as I can.	I would never blame anyone for seeking a little bit of comfort and reassurance.
 <h6 align="center">I am a great idealist and romantic, and often forget the thread of what is real. Art is a very comfortable and safe space for me!
 
- I’m an artist who enjoys writing, singing and acting. I am a little distant and shy when it comes to my art – especially writing – but I’m always glad to share this passion with others! I am a huge bookworm, and although I especially read horror-related books, I am more than happy to share and discover more! I can get very inspired and eager when the topic revolves around literature and cinema, feel free to talk to me if you're interested. <3
+<h6 align="center">I’m an artist who enjoys writing, singing and acting. I am a little distant and shy when it comes to my art – especially writing – but I’m always glad to share this passion with others! I am a huge bookworm, and although I especially read horror-related books, I am more than happy to share and discover more! I can get very inspired and eager when the topic revolves around literature and cinema, feel free to talk to me if you're interested. <3
+ 
+and music!! I love music so much, you will always find me listening to music and discovering new bands!
 
 <h6 align="center"><small><sub><h6 align="center">English is not my first language, I apologize for any miscomprehension or grammatical errors.</h6></sub></small>
 </h6>	
