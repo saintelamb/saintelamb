@@ -35,7 +35,5 @@ Needless to say, if you are into real footages depicting death or anything harmf
 
 <h6 align="center">Despite everything, I tend be too much accepting and forgiving, often going against my own boundaries. I feel a lot for others, sometimes a little too much, and this affection and sympathy make me want to forgive, understand and care.
 <h6 align="center">because I sympathize and empathize naturally <b>does not mean</b> that I approve-- I struggle with the idea of not being able to empathize this much with others. and I feel genuinely sorry for others and for myself for empathizing with people and things that go against my morals and what I stand for. which is why I will often cope and find escapism by empathizing with concepts of minds that aren't real; I would rather much empathize with a horrible fictional character than a horrible person in real life.
- 
-It goes without saying that it's very difficult for me to suppress this empathy, which comes as naturally to me as breathing.</h>
 
 <h1></h1>
